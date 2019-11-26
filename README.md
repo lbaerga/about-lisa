@@ -7,3 +7,5 @@ After graduating BMCC, she went to Brooklyn College and graduated with a Bachelo
 She then applied and was accepted to the NYC Teaching Fellows' Program, where she began teaching and earned her Master's in Education.
 
 She now teaches at HSTAT.
+
+And it's awesome.
