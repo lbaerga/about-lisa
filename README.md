@@ -9,4 +9,4 @@ She then applied and was accepted to the NYC Teaching Fellows' Program, where sh
 She now teaches at HSTAT.
 
 And it's awesome.
-HELLO
+
